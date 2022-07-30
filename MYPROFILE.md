@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rafael Simson Riston
-- 👀 I’m interested in Data Analsyt
+- 👀 I’m interested in Data Scientist
 - 🌱 I’m currently student of Digital Business Department on Makassar
 - 💞️ I’m love to colaborate with people who love analsyt
 - 📫 How to reach me IG : rafaelsimsonr_
